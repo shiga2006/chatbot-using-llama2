@@ -12,5 +12,8 @@ Procedure to do:
 
 
  Chatbot:
+ ![image](https://github.com/user-attachments/assets/38b866a7-15e3-40fb-b6d1-1ae86dba07e0)
+
 ![WhatsApp Image 2025-01-19 at 12 56 52_b56b8ea8](https://github.com/user-attachments/assets/b7f04117-7a69-4335-8317-d6675c1f1b81)
 
+![image](https://github.com/user-attachments/assets/55381bc6-8d96-452c-9653-5b530a723305)
